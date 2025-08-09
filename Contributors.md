@@ -23,7 +23,7 @@ Hey Hi everyone
 -[Karthika Suresh](https://github.com/Karthika125)
 - donman420🍃
 - [Nate](https://github.com/ipdor)
-- [Chirag Veerwani](https://github.com/chiragveerwani)
+- [Chirag V](https://github.com/chiragveerwani)
 - [Arthur Döhler](https://github.com/herrdohler)
 - Mrunali
 -[Moresh](https://github.com/Moresh-Mishra)
